@@ -1,2 +1,2 @@
-# Projeto-Nectar-s-Soluctions
+# Projeto Nectar's Soluctions
 Projeto Acadêmico sem fins Lucrativos
